@@ -1,1 +1,1 @@
-# Helooeverybody.github.io
+# AI Basics Page for PhD
